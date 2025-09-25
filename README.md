@@ -8,7 +8,7 @@
 ---
 
 ## 🧬 À propos de moi  
-Je suis coordonatrice de recherche senior avec plus de **20 ans d’expérience** dans :  
+Je suis coordonatrice de recherche senior avec plus de **25 ans d’expérience** dans :  
 - la gestion de projets de recherche multidisciplinaires  
 - l’obtention de financements compétitifs  
 - le développement de partenariats stratégiques internationaux  
